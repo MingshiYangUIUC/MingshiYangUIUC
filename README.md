@@ -12,5 +12,4 @@ Here are some ideas to get you started:-->
 - 💬 Ask me about :cyclone:.
 - 📫 How to reach me: mingshi3@illinois.edu.
 - 😄 Pronouns: he, him, his.
-- ⚡ Fun fact: :8ball:.
 
